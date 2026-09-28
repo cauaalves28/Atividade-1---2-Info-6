@@ -1,1 +1,1 @@
-# Atividade-1---2-Info-6
+tchstore_3-info/
